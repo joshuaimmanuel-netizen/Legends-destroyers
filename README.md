@@ -1,3 +1,3 @@
-Our Channel Name is @JJ-Legend-Destroyers
+Our Youtube Channel Name is @JJ-Legend-Destroyers
 
 
