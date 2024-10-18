@@ -1,3 +1,3 @@
-Our Channel Name is LegendsDestroyer.
-The link is @JJ-dv1rv
+Our Channel Name is @JJ-Legend-Destroyers
+
 
